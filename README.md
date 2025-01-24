@@ -6,11 +6,11 @@ I'm from Poland 🇵🇱, but as you can see, I can speak in English too 🇬�
 
 # Any questions?
 
-If you want to ask me more, you can contact on my e-mail redakcja@kuyaviandx.pl 📧    
+If you want to ask me more, you can contact on my e-mail mateusz@dxpoland.eu 📧    
 
 # Also
 
-Visit https://kuyaviandx.pl/ 
+Visit https://dxpoland.eu/
 
 
 Stay tuned for more! 😺
